@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 My Name is Matthew
 #### I like to use AI, and enjoy having different AIs collabrate with each other
 #### I like video games, food, and hanging out with my friends
 ### Im also a senior
